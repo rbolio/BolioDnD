@@ -4,6 +4,11 @@ Remember that she is meant to be posh and shit.
 
 ## Greetings
 
+How hop's it?
+
+Salutations
+
+Well, look at you...
 
 ## Good-bye
 
