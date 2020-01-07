@@ -12,3 +12,6 @@
  - Theres a bathouse where some weird dudes come out of.
  - They might be armed.
  - The Dead 3 are some evil gods. Its also the name of their cult
+ 
+ -pirate guy was named dead eye
+
