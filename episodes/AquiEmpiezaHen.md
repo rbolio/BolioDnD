@@ -29,3 +29,7 @@ Fuimos al templo donde Un dios, Lathander (the Morning lord) me dio un arma mas 
 KILL DEMONS (They want to kill me. Chaotic evil), DONT KILL DEVILS (they scheme, but dont try to kill on the moment...they want my soul) 
 
 De aqui a High Hall con el casco Poseido
+-----------
+
+we saver Ulter Ravenguard and removed his helmet via Farah's help
+We are heading to knucklebone junk yard to find a fallen sword
