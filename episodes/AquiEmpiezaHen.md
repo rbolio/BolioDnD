@@ -52,3 +52,6 @@ Tienen una conversacion y nos echa paro
 grubba has the tooth
 
 wazzyk is helping us find grubba
+
+Drugs with Lulu! A ver que tiene en sus memorias.
+#. 
