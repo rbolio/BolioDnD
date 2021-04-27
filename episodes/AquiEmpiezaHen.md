@@ -33,3 +33,22 @@ De aqui a High Hall con el casco Poseido
 
 we saver Ulter Ravenguard and removed his helmet via Farah's help
 We are heading to knucklebone junk yard to find a fallen sword
+
+---
+
+Salimos de elturel en el globo aeroestatico, pero 11 spined devils nos agarraron a vergazos y henos aqui cerca de llegar al pueblo Knuclebone.
+
+Lulu recuerda haber visto unos kenkus en Fort Knuclebone.
+
+Vieron un demonio que estaba liderando a otros....el Escudo dice que es Lucille y es la mano derecha de Zariel.
+
+
+
+----
+
+Lulu dice que no tiene memoria, pero se acuerda que Mad maggie es una 'friendly face' y que recuerda tener buenos momentos con ella.
+Tienen una conversacion y nos echa paro
+
+grubba has the tooth
+
+wazzyk is helping us find grubba
