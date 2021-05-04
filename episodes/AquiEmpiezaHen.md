@@ -69,4 +69,20 @@ the demons fly away and the dream fades....we appear in a vast baren landascape.
 We get sucked into a void again, a nothingness.....
 En toda la obscuridad sale un "spotlight" vemos a lulu en una montana de colchones.....esta incocinente y al lado de ella hay un telescopio
 
-Lulu se despierta y empieza a ver el telescopio.
+Lulu se despierta y empieza a ver el telescopio....donde encuentra la espada! Were going for the sword!
+
+El fortresss donde esta la espada, es cercad e Harumans hill, relativamente cerca de donde estamos....aun que parece que hay que cruzar el rio......
+
+Maggie nos regala, we get 2 infernal war machines....... 
+
+We get a tormentor and a motorcycle!! :o
+
+Smiler the defiler, a green skinned elf we may find..... Friend of maggie.... "Tell him she says hello"     "we are out to help him with revenge against covid and some gang leaders"
+
+Mad maggie gives us 3 soul coins, magic items...they fuel the war machines.  [24 horas por charge, pero cada war machine consume la moneda completa.]
+Podemos consumir un charge del soul coin para consumir a un ser viviente, y un charge para hacer preguntas, o "free the soul"
+
+
+
+
+
