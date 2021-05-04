@@ -79,8 +79,13 @@ We get a tormentor and a motorcycle!! :o
 
 Smiler the defiler, a green skinned elf we may find..... Friend of maggie.... "Tell him she says hello"     "we are out to help him with revenge against covid and some gang leaders"
 
+
 Mad maggie gives us 3 soul coins, magic items...they fuel the war machines.  [24 horas por charge, pero cada war machine consume la moneda completa.]
 Podemos consumir un charge del soul coin para consumir a un ser viviente, y un charge para hacer preguntas, o "free the soul"
+
+Machines are powered for 24 hours, for "free"
+
+SCAVAGE SOUL COINS
 
 
 
