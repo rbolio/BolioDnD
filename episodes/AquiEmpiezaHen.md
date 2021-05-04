@@ -49,9 +49,24 @@ Vieron un demonio que estaba liderando a otros....el Escudo dice que es Lucille 
 Lulu dice que no tiene memoria, pero se acuerda que Mad maggie es una 'friendly face' y que recuerda tener buenos momentos con ella.
 Tienen una conversacion y nos echa paro
 
-grubba has the tooth
+Barnabas is missing a tooth:  grubba has the tooth
 
 wazzyk is helping us find grubba
 
 Drugs with Lulu! A ver que tiene en sus memorias.
 #. 
+
+-----------
+Next Episode,  3/5/2021
+
+we see Lulu in her Drug induced dream. She is with a blindfolded Angel.
+We see lulu and the angel hurt, knocked out.
+In the fight, we see Elturel Warriors fleeing in a portal, which closes behind htem
+Despues de matar a unos cuantos spined devils, el sueno hace un "FFw" .... los spined devils nos juran lealtad.... 
+
+the demons fly away and the dream fades....we appear in a vast baren landascape..Lulu is missing
+
+We get sucked into a void again, a nothingness.....
+En toda la obscuridad sale un "spotlight" vemos a lulu en una montana de colchones.....esta incocinente y al lado de ella hay un telescopio
+
+Lulu se despierta y empieza a ver el telescopio.
