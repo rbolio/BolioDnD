@@ -87,7 +87,12 @@ Machines are powered for 24 hours, for "free"
 
 SCAVAGE SOUL COINS
 
+-------------------------------------------------------------------------------------------
+Harpoon Flinger (Requires 1 Crew and Grants Half Cover). Ammunition: 10 harpoons.
 
+Ranged Weapon Attack: +7 to hit, range 120 ft., one target. Hit: 11 (2d8 + 2) piercing damage. 
+
+Ya vamos a saliendo hacia el desierto.
 
 
 
