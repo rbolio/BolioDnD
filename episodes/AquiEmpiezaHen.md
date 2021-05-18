@@ -96,3 +96,7 @@ Ya vamos a saliendo hacia el desierto.
 
 
 
+Conseguimos 4 soul coins, un circlet of blasting y el Demon Grinder!
+
+
+---Grand total of 7 coins at this point.!---
