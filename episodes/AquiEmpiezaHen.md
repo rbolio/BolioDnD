@@ -120,4 +120,4 @@ Loot: infernal tacs,
 
 Theres a vampire in the biggest tree, asking to be released from his punishment. 
 
-Janderson Sunstar, he was a warropr with Sariel, but in avernus he betrayed his friends...turned back and closed the portal.
+Janderson Sunstar, he was a warropr with Sariel (Hell riders! They were Sariels private army), but in avernus he betrayed his friends...turned back and closed the portal.
