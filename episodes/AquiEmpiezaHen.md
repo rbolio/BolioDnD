@@ -31,6 +31,8 @@ KILL DEMONS (They want to kill me. Chaotic evil), DONT KILL DEVILS (they scheme,
 De aqui a High Hall con el casco Poseido
 -----------
 
+
+
 we saver Ulter Ravenguard and removed his helmet via Farah's help
 We are heading to knucklebone junk yard to find a fallen sword
 
@@ -103,3 +105,19 @@ Conseguimos 4 soul coins, un circlet of blasting y el Demon Grinder!
 
 Le regresamos a Maggie el tormentor.
 
+--------------------------
+Session 6/7/2021
+
+Crossing the iker river.
+
+Aeryn: Butterfly ears for dunking head accidentally in the river. +5 fly speed.
+Mjobu: fell in the river, is now plum girl from Charlie in the chocolate factory.  1/2 speed. 
+
+Impaled knights in tree. we were attacked by a Nightmare and some random strong dude. HARUMAN
+
+5 hp left, we did 96 damage. Bano cholo!
+Loot: infernal tacs, 
+
+Theres a vampire in the biggest tree, asking to be released from his punishment. 
+
+Janderson Sunstar, he was a warropr with Sariel, but in avernus he betrayed his friends...turned back and closed the portal.
